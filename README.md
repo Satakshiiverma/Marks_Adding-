@@ -7,4 +7,6 @@ Case Study-
 Description-
 
 Code-  
+![image](https://github.com/Satakshiiverma/Marks_Adding-/assets/152150470/243c6303-7602-4dc0-bfdd-ee77f39a6783)
+
 
